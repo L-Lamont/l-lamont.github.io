@@ -36,4 +36,27 @@ this as well, hopefully it is not just me :)
     realise, trying to stop the snowballing of a no plan day ASAP
 
 ## Results
-*Stay tuned for updates*
+So far as of Thursday night results haven't be spectacular. The primary reason 
+is my own stupidity & inability to set clear tasks. One thing I did not clearly 
+define was what a plan looks like. On somedays a task list worked on others it 
+didn't. I think one of the primary issues is forgetting I have these plans in 
+place (even though they are sitting on a sticky note in right in front of me).
+
+One thing that has been semi-successful is creating a weekly plan with the core 
+things such as workouts, meal times, meetings, etc. I have by no means stuck to 
+what that idealised week was but I think I have got a lot closer to it than if I 
+did not have it. I am also forgetting about it like the task lists. In order to 
+combat this forgetting I have switched it to be the first sheet in my tracking 
+spreadsheet which is always open on any computer I am on. A simple big 
+improvement possible is just to review that explicitly each morning before 
+making the plan by writing out the tasks. Implicitly this will give me a better 
+idea of how I can schedule and fit things in without it being actually 
+scheduled.
+
+I don't know why I haven't thought to connect these things before I even have a
+work weekly plan with the specific tasks that need to be done (*facepalm*). So 
+in the spirit of better late then never. The process for coming up with a plan 
+is to review the day planned in the weekly plan, look at the tasks that need to 
+get done in the work tasks for the week & then write up the task list. Hopefully
+that will let my simple mind remember what it has to do each day.
+
