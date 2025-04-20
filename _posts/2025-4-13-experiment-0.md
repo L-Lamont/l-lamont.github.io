@@ -60,3 +60,21 @@ is to review the day planned in the weekly plan, look at the tasks that need to
 get done in the work tasks for the week & then write up the task list. Hopefully
 that will let my simple mind remember what it has to do each day.
 
+---
+
+Ok so it is now Sunday night and I wont call this experiment a success. The 
+main issue was the ambiguity in the planning & poor impulse control. To remedy 
+this I have now defined & implemented some more ways to spend my time 
+productively e.g. writing on this website & working on a specific side project 
+(not just studying a topic broadly by reading a textbook, because that isn't 
+working for me) as well as the usual exercise, stretching, meditation, etc. For 
+this weeks schedule I have setup more consistent timing of tasks & ensured I 
+have allocated enough time for things I want to make progress towards. I don't 
+understand why I don't schedule tasks at consistent times during the day so I 
+will be trialling a more regimented schedule like eating lunch at 12:00, 
+getting up at a fixed time etc. I eat the same thing for breakfast most days so 
+I obviously don't have an issue with repetition (a fun / sad fact about me is 
+that I have had porridge for breakfast 53 days in a row... jesus that is a 
+confronting stat, probably should change that). Anyway I will either update 
+this or a new post with more results later. Thanks for reading the ramblings of 
+an idiot :).
