@@ -36,3 +36,15 @@ that this may not be the best way to break through them but it is important to
 change something and see if it helps because the status quo isn't working at 
 the moment. I will update this post with the results and thoughts each day.
 
+**Monday**  
+It was not the roaring start that I may have wanted. I got out of bed late and 
+watched the days AFL shows, got coffee and generally didn't push myself too 
+hard. But surprisingly I have had a very productive day. I guess the 
+realisation is that you don't have to kill yourself pushing every single second 
+of the day you just need a plan, solid progress and a few moments where you 
+choose to do the right tasks. Reflecting on this day I get drawn to thoughts of 
+Tim Ferriss who emphasises working on the important things rather than being 
+needlessly busy. That is probably another really useful thing I should learn to 
+do, always ere towards doing the important things now and don't worry so much 
+about the little things.
+
