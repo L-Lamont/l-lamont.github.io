@@ -48,3 +48,9 @@ needlessly busy. That is probably another really useful thing I should learn to
 do, always ere towards doing the important things now and don't worry so much 
 about the little things.
 
+**Tuesday**  
+Again another solid day with a few really good work sessions. I picked out a 
+single task to work on but got side tracked by a few sub tasks which did not 
+matter (if it is going to get run once don't spend an hour optimising it). Bit 
+disrupted at parts but I kept to the 8th rule of not being stupid for the most 
+part.
