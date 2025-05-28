@@ -54,3 +54,16 @@ single task to work on but got side tracked by a few sub tasks which did not
 matter (if it is going to get run once don't spend an hour optimising it). Bit 
 disrupted at parts but I kept to the 8th rule of not being stupid for the most 
 part.
+
+
+**Wednesday**
+A solid work day but the evening was just full of poor decisions. It was a 
+reccurence of a bad habit of not finding balance in the content I consume. 
+Watching one episode would have been fine, but watching several probably wasn't 
+the wisest of decisions. In the future I need to find a better way to break 
+that circuit. In the midst of all this consumption I missed a scheduled run and 
+broke my workout streak. This was probably the furthest I have strayed from the 
+rules set out above, they are not hard and fast but I feel this evening did not 
+follow the spirit of them. Tomorrow I am going to ensure I have a proper plan 
+which prioritises tasks properly and keeps me on track.
+
